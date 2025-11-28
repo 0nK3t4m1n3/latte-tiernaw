@@ -1,10 +1,15 @@
-# Paskal
-
-- Pronouns: any pronouns
--  deepest cut: facia
--  love (https://x.com/PunchingCat)
-
-- sɪd ╭ Tiernaw ╮
-- Discord: [`lu.mxn`](https://discord.com/users/908563963392958464)
-
+> ⸺﹒︶︶﹒＞﹒
+> ! ﹒⺌﹒﹐__**ZubQuei**__﹒๑✿
+> 
+> :herb:  ۪   ꒱   𝐌D Ope𝖞 *!*
+>  An𝓨 p𝖗𝖔𝖞𝖔u𝖘 *!!*
+> 
+> .  ˖  ₊ㅤꃳ  O.M   𝄒ᘡ  ˖  ࣪✦୧・> .     ㅤㅤ
+> ▨﹒ꜜ ﹐**16 Years**  CL
+> 
+> *love* (https://x.com/PunchingCat)
+>
+> sɪd ╭ Tiernaw ╮
+> *Discord:* [`lu.mxn`](https://discord.com/users/908563963392958464)
+> ⸺﹒︶︶﹒＞﹒⭔
  
