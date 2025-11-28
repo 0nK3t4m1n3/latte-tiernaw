@@ -9,8 +9,17 @@
 > 🚫 virtual relationships
 > 
 >The content on my accounts is delicate and created by me because I want to; I’m not seeking any help.
-> 
-[![Spotify](https://spotify-github-profile.vercel.app/api/view?uid=315fx2l3w2yml6pun5bnvdlghgce&cover_image=true&theme=default&show_offline=false&background_color=121212)](https://open.spotify.com/user/315fx2l3w2yml6pun5bnvdlghgce)
+
+
+
+<img src="https://cdn.discordapp.com/attachments/1436408577169559563/1436408671029432390/875241EE-AFC1-43B7-9273-9A275D7721AE.gif" alt="GIF animado" width="400">
+
+
+
+
+
+
+
 
 
 > shtwt edtwt ㅤㅤ
