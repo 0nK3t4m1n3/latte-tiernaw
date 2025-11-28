@@ -1,13 +1,15 @@
-# Hello There!
+# Hello
 
-I am nish. I am a beginner developer, here some info about me
-- 🙃 Pronouns: He/Him/They/Them
-- 👀 I’m interested in [Java](https://www.oracle.com/in/java/). I know JavaScript, HTML and CSS (self-taught, so it is likely that i don't about know something)
+I am Nish. I’m a beginner developer. Here is some basic information about me:
+
+- Pronouns: any pronouns
+-  deepest cut: facia
+-  love @PunchingCat
+
 - 💞️ I’m looking to collaborate on nothing... You can contact me for collaboration though!
 #### 📫 How to reach me
 - Discord: [`lu.mxn`](https://discord.com/users/908563963392958464)
 
-[![discord](https://discordapp.com/api/guilds/787578856122351626/embed.png?style=banner2)](https://discord.gg/xckZRGyDrM)
  
 > You can know if i am active on Discord, by looking at my GitHub status. It updates when i become online on discord and when i am sleeping.
 
