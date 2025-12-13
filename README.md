@@ -1,10 +1,6 @@
    <img src="https://cdn.discordapp.com/emojis/1437263799114797066.webp?size=44" alt="Emoji" width="44" height="44">
 
 
-
-> ⸺﹒︶︶﹒＞﹒
-> 
-> 
 >  md open Any pronous
 > 🚫 virtual relationships
 > 
